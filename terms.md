@@ -1,4 +1,4 @@
-Legal Notices
+# Legal Notices
 
 Kingston and Jeong has created this website to enable you to learn more about the activities of us. These materials do not, and are not intended to give you legal advice.  The information available through this site does not create an attorney-client relationship, nor does it substitute for obtaining legal advice from an attorney licensed in your state or country.
 
