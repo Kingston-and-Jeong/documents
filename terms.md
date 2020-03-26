@@ -9,11 +9,6 @@ Kingston and Jeong may refuse to communicate with whom does not respect applicab
 DO NOT USE THIS SITE AND THE INFORMATION PROVIDED BY  THIS SITE FOR YOUR LEGAL PROBLEMS. WE ARE NOT RESPONSIBLE FOR INFORMATION USED WITHOUT ATTORNEY'S LEGAL REVIEW.
 
 
-
-The Kingston and Jeong.
-
-
-
 Copyright Notice/Photo Credits
 
 Photo credits belong to the following individuals under Creative Commons License 2.0, available at http://creativecommons.org/licenses/by/2.0/:  Homepage (U.S. Courthouse, D. Palmer).  Contact site administrator for further information.
